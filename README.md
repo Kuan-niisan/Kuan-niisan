@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **haibakhongtam2004@gmail.com**
 
-- ⚡ Fun fact: **Love learning new techs<br>anime enthusiastic<br>also can speak a bit of Japanese (\^o^/)**
+- ⚡ Fun fact: **<br>Love learning new techs<br>anime enthusiastic<br>also can speak a bit of Japanese (\^o^/)**
 
 [//]: <> (<h3 align="left">Connect with me:</h3>)
 [//]: <> (<p align="left">)
